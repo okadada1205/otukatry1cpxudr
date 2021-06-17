@@ -1,1 +1,0 @@
-# otukatry1cpxudr
